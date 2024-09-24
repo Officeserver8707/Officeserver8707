@@ -1,0 +1,3 @@
+-  [ #.N0NST0P C0NV0 F1R3 😈 = CH11L  B33 JH1TUUU  T3R11 B3H1NNN K11 CHUTT 👅👄👅
+-  [ T3R1_ B1H3N KI__ G1ND F22DU__ S3ND1Y R0Y """"""><<<<<<< 3:) 
+3:) 3:) 3:) 3:) 3:)
